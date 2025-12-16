@@ -1,0 +1,1 @@
+If you want to get the hacks check the branches i am new to github so sorry if i could just add something to make it easier and make sure to click the star if you like the hacks thats pretty much it thanks for using these hacks :)
